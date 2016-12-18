@@ -1,3 +1,3 @@
 # Hello-World
-i want to give a warm welcome to all the people of the world.
+i want to give a warm welcome to all the people of world.
 according to me life is a boat which carries different chapters of life as if passengers of boat but it has only one destination i.e. death as if the boat's has the other bank of river..So never stop try to achieve more and more in the short period of travel...
